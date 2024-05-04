@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @A-Bus7
 - 👀 I’m interested in CYBERRRRRR
-- 🌱 I’m currently learning Data Analysis
+- 🌱 I’m currently ... the matrix
 - 📫 How to reach me ... you dont :)
 - 😄 Pronouns: help/pls
 - ⚡ Fun fact: I play videogamesssss (GIMME UR VALORANT @)
