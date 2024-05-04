@@ -2,7 +2,7 @@
 - 👀 I’m interested in CYBERRRRRR
 - 🌱 I’m currently ... the matrix
 - 📫 How to reach me ... you dont :)
-- 😄 Pronouns: help/pls
+- 😄 Pronouns: her/she[y]
 - ⚡ Fun fact: I play videogamesssss (GIMME UR VALORANT @)
 
 <!---
